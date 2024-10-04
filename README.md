@@ -1,6 +1,8 @@
 ## 👋oii, me chamo Jennifer;
 - tenho 15 anos;
 - sou estudante.
+- gosto de jogos 🎮
+- gosto de animais 🐕
 - 💓 😸 🥀
 -
 -
