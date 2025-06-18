@@ -8,5 +8,6 @@
 entre em contato comigo: @jenny_zamberlan 
 💌
 
+![](<div class="tenor-gif-embed" data-postid="22816005" data-share-method="host" data-aspect-ratio="0.853125" data-width="100%"><a href="https://tenor.com/view/rat-moment-rat-gif-22816005">Rat Moment Rat GIF</a>from <a href="https://tenor.com/search/rat+moment-gifs">Rat Moment GIFs</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>)
 
-<div class="tenor-gif-embed" data-postid="25169380" data-share-method="host" data-aspect-ratio="0.5625" data-width="100%"><a href="https://tenor.com/view/cat-gif-25169380">Cat GIF</a>from <a href="https://tenor.com/search/cat-gifs">Cat GIFs</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>
+
